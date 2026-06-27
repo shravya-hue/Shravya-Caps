@@ -1,2 +1,0 @@
-# Shravya-Caps
-Assignment submission
